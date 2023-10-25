@@ -1,5 +1,5 @@
 ### cam cam 😤
-#### backend developer
+#### backend developer (Java/C# SQL)
 
 
 you won't find me at programming groups in public
