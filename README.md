@@ -5,11 +5,17 @@
 you won't find me at programming groups in public
 
 but you will find me at:
+
 archery nationals shooting  
+
 anime conventions
+
 bars
+
 local concerts
+
 looking like a fashionable hobo
+
 
 
 <!--
