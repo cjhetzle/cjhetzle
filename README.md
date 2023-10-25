@@ -1,4 +1,16 @@
-### Hi there 👋
+### cam cam 😤
+#### backend developer
+
+
+you won't find me at programming groups in public
+
+but you will find me at:
+archery nationals shooting  
+anime conventions
+bars
+local concerts
+looking like a fashionable hobo
+
 
 <!--
 **cjhetzle/cjhetzle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
