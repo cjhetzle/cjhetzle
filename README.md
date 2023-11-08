@@ -8,7 +8,7 @@ but you will find me at:
 
 archery nationals shooting  
 
-anime conventions
+local conventions
 
 bars
 
